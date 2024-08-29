@@ -1,7 +1,4 @@
 Referências bibliográficas usadas na elaboração do trabalho:
-.
-.
-.
 
 RESOLUÇÃO CONAMA Nº 430 DE 13/05/2011. LegisWeb, 2011. Disponível em: https://www.legisweb.com.br/legislacao/?id=114770. Acesso em: 18 de ago. de 2024.
 
